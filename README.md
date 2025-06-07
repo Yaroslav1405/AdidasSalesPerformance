@@ -114,5 +114,3 @@ Conversely, in Dallas, Birmingham, and Knoxville, over 90% of profit is driven b
     Enhance online experience in Southeast cities where most (>90%) of profit is digital, and increase outlet marketing in cities where outlet performance dominates. 
   
 In conclusion, in 2021 Adidas highlights market rebound, however must address specific challenges to sustain and grow success. By leveraging regional strenghts, improving channel-based campaigns, and streamlining product lines the company can drive continued improvement and profitability. 
-
-Explore dashboard 
